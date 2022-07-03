@@ -28,4 +28,4 @@ By using Velocity Security ™ you accept with its privacy policy and discord.co
 
 • Simply join our support server and ask any in support channel to delete your entire data, We will delete your entrie data without asking any question, exceptions: user/server blacklisted IDs (discord tos / bot tos violators)
 
-Last Changed 
+Last Changed  Sunday, 3 July, 2022
