@@ -22,7 +22,7 @@ By using Velocity Security ™ you accept with its privacy policy and discord.co
 # 4. Privacy Policy Doesn't Answer My questions What should  I do?
 
 • Simply Join Our Support Server https://discord.gg/QxdmFevSdn On Discord
-• Contact Me On Discord !!! ˖𓆩⌁《₮Ɽł₵₭$₮ɆⱤ 》†ˢᵖʸ メ !!!#8406
+• Contact Me On Discord Trickster[.]#7244
 
 # 5. How can we delete our entire data?
 
