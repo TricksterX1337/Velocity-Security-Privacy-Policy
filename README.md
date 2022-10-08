@@ -30,7 +30,7 @@ By using Velocity Security ™ you accept with its privacy policy and discord.co
 
 # 6. How Long Do we Store Your Data?
 
-• Your Data will be Stores Till 1 - 2 Days, after Your Data will be deleted instantly
+• Your Data will be Stored Till 1 - 2 Days, after Your Data will be deleted Automatically.
 
 # 6. Our Data is encrypted?
 
